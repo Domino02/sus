@@ -1,2 +1,0 @@
-# sus
-Punya aku
